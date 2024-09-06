@@ -1,10 +1,10 @@
-# MUSIC-GOD
+# GREY-HEART-TECH-V1
 FASTEST BOT IN THIS WORLD AND WORK 24*7 Hours
 <div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ribeye&size=50&pause=1000&color=G0B1&center=true&width=910&height=100&lines=YouTube+Channel+TECH+GOD;SIMPLE+Bot+MUSIC+GOD;WA+NUMBER+*+91+9012008456;PROGRAM+By+TECH+GOD" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ribeye&size=50&pause=1000&color=G0B1&center=true&width=910&height=100&lines=YouTube+Channel+TECH+GOD;SIMPLE+Bot+GREY-HEART-TECH+V1;WA+NUMBER+*+234+2347038494997;PROGRAM+By+GREY-HEART+TECH" alt="Typing SVG" /></a>
 <p align="center">  
   <a href="https://youtube.com/@techgod143">
-    <img alt=MUSIC-GOD height="300" src="https://i.imgur.com/oYoObSY.jpg">
+    <img alt=MUSIC-GOD height="300" src="https://telegra.ph/file/40d55d0be6d6e4b7fd6ba.jpg">
    
 </a> 
     
@@ -13,7 +13,7 @@ FASTEST BOT IN THIS WORLD AND WORK 24*7 Hours
 <a 
 
 ####  
-MUSIC-GOD SIMPLE Whatsapp Bot.
+GREY-HEART-TECH-v1 SIMPLE Whatsapp Bot.
 
 ***
 
